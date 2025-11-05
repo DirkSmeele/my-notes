@@ -1,0 +1,1 @@
+Smid in het dorp [[Thalindor]]
